@@ -1,7 +1,7 @@
 Here is a list of 10 of my favorite DS9 episodes.
 Purely subjective based on my frame of reference and totality of my life experiences.
 1. **Episode** <br>
-Synopsis
+Synopsis <br>
 What I liked and disliked about it.
 2. Episode
 Synopsis
